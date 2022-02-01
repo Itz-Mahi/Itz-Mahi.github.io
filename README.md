@@ -8,11 +8,11 @@
    <i>𝐇𝐨𝐭𝐭𝐞𝐫 𝐭𝐡𝐚𝐧 𝐲𝐨𝐮 𝐞𝐱 𝐛𝐞𝐭𝐭𝐞𝐫 𝐭𝐡𝐚𝐧 𝐲𝐨𝐮 𝐧𝐞𝐱𝐭 😏</i>
 </p>
 
-<b><h4> Chill We all are bad in someone's story</br>Meh Buzy making mah own world🌍</h4></b>
+<b> Chill We all are bad in someone's story Meh Buzy making mah own world🌍</b>
 <br> 
 
 <hr>
-</hr> 
+
 
 ## Want to know something about Meh?
 ```
